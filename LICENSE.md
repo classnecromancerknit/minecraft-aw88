@@ -1,4 +1,4 @@
-#  
+#  Experience minecraft like never before with custom Scripts for minecraft, the #1 Script. Includes no clip and speed for unbeatable performance.
 
 
 
